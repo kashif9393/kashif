@@ -4,4 +4,4 @@ talk to me
 ohh no 
 your not good 
 boy non of your buisness
-hi
+kya thu bhi dale
